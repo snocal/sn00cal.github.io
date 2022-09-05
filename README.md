@@ -1,1 +1,0 @@
-# snocal.github.io
